@@ -1,1 +1,0 @@
-wallpapers yep for desktops
